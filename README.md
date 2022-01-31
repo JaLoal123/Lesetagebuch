@@ -1,2 +1,2 @@
 # Lesetagebuch
-School stuff please juzt ignore this
+School stuff please just ignore this
